@@ -1,2 +1,0 @@
-# Ronnie-Coleman
-Yeaaaaaah Buddy 
